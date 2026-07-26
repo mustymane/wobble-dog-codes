@@ -34,3 +34,16 @@ his code:
 <img width="359" height="386" alt="Screenshot 2026-07-25 210048" src="https://github.com/user-attachments/assets/af9b9a0d-9b22-4264-80a3-d63478d9bc09" />
 <img width="1365" height="767" alt="image" src="https://github.com/user-attachments/assets/5fc4cba3-b815-4f40-abd6-86bf16accd33" />
 
+
+4. # ulterior
+
+   his code: 
+
+5cc000:Co8F13j3.0971:1g9^F13008^:^1m1120::F00000m0CCc88DED20C3FF04r041a8A98:000D::1:7:dc:50c4:a:1A9a:Fc1::::FF0ftc0c;081:;:<cc:0^3nc1:2lH810840E8b8C^FF^.CC86cF;c5cFCC30FLt9FFoFtr07D3002100c4a9c81C4g0CelU:0^30001^0983d8D0FA0ic^8tt6bgCC0C00e3Ic9Dac^0870200080g8F0790F00933<0^8:
+<p align="center">
+  ──── ୨୧ ────
+  
+  <p align="center">
+   <img width="408" height="536" alt="image" src="https://github.com/user-attachments/assets/9a037ea0-4ffb-415b-acfb-f441bb9f8af2" />
+<img width="1365" height="767" alt="image" src="https://github.com/user-attachments/assets/f7c81567-62de-4c68-b269-f35ba4508227" />
+
