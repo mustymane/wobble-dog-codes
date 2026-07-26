@@ -12,3 +12,7 @@ her code:
 <img width="560" height="537" alt="Screenshot 2026-07-25 203509" src="https://github.com/user-attachments/assets/f5c8b52a-0e88-4b7a-b707-05c145f0a207" />
   <p align="center">
 <img width="1360" height="758" alt="image" src="https://github.com/user-attachments/assets/fd5a3502-4710-42d5-a7ff-0a0c2f3096d1" />
+
+2. # granule
+
+<img width="537" height="430" alt="image" src="https://github.com/user-attachments/assets/891d897b-248a-4321-97cc-ac075ad02b52" />
