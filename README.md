@@ -23,3 +23,14 @@ her code:
 <img width="537" height="430" alt="image" src="https://github.com/user-attachments/assets/891d897b-248a-4321-97cc-ac075ad02b52" />
 <img width="1365" height="767" alt="image" src="https://github.com/user-attachments/assets/c8c5dda0-fe0b-4d9d-a636-09cfe5337bf2" />
 
+3. # blakey poo boo
+his code:
+
+   8aDGa7a<FA2A7LFED^7A40^c1EE9A7749013FD37=o3;EFB:7;Eao^a B138439^^3B4a8aB9:39a9A42FED1E5F0D828F26^A78cF6pA87D14Ca=7;^1E2<=90b;a:c9=2F=0:3F4AD=9;A6<691b9C0<=1b=<<BF6aF4543F5Am2aE3<A;EEN1=B_193^=474CF5FBFF7FC.DCDFFF^FCFC410Ob5YUUa=.DBD1To483229E11101^04alayka0FDobAFFF7cb3e3AC7 a4 Ea1C31E5^0F29D166E06E1b096EB37A893a83D7DC7383F3=5F66579
+
+<p align="center">
+. ݁₊ ⊹ . ݁ ⟡ ݁ . ⊹ ₊ ݁.
+<p align="center">
+<img width="359" height="386" alt="Screenshot 2026-07-25 210048" src="https://github.com/user-attachments/assets/af9b9a0d-9b22-4264-80a3-d63478d9bc09" />
+<img width="1365" height="767" alt="image" src="https://github.com/user-attachments/assets/5fc4cba3-b815-4f40-abd6-86bf16accd33" />
+
