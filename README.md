@@ -47,3 +47,14 @@ his code:
    <img width="408" height="536" alt="image" src="https://github.com/user-attachments/assets/9a037ea0-4ffb-415b-acfb-f441bb9f8af2" />
 <img width="1365" height="767" alt="image" src="https://github.com/user-attachments/assets/f7c81567-62de-4c68-b269-f35ba4508227" />
 
+5. # FOUND SILVER
+
+his code: 
+
+aA3=CF2TE2AFEF7Fb7c7^8B4170E314D2b8F5F52d4D4^31F3199D80Cu9650F9A8EvC6DB73E=049EcC4D1bD7FbFDB66=8r<08CFB4Faa793a;E92Da1;<<==Bc4<:a3=a0594^;=:92;Da=BF4357629<0<ad73^BDaa=a0=<cc1^^5.6D7=48C4DFC87^CAFFDFF81EF0DF3F17<AFF0D2F56i4^0a81Um.L=0^1C02160^f52on1 6e1F1F9s0<3:9C0d0alAA8c861DA4CE^BAB9bd13FBEF;91BA845CC37BF398BEa61A04b005
+
+<p align="center">
+   <img width="439" height="627" alt="image" src="https://github.com/user-attachments/assets/ec4cbe21-9071-435c-8d4f-2c4697a65a27" />
+
+   <img width="1365" height="767" alt="image" src="https://github.com/user-attachments/assets/82319e2e-b855-493a-aba0-8f7d18026c15" />
+
