@@ -58,3 +58,13 @@ aA3=CF2TE2AFEF7Fb7c7^8B4170E314D2b8F5F52d4D4^31F3199D80Cu9650F9A8EvC6DB73E=049Ec
 
    <img width="1365" height="767" alt="image" src="https://github.com/user-attachments/assets/82319e2e-b855-493a-aba0-8f7d18026c15" />
 
+6. # tremendous
+
+their code:
+
+0F0C4E:A71aEcB7D81^8^F31AFC:7L4AE10F0aAhAaCCe79010d90Do97FaF2C627CC7A6a9^7E7F91Fe34108;0FAb98=a0C:a12<8bF11dd2023bF118b77;<70:C174F;:=cA=Cb4;=0:68c97a7C:;3;1F:F3:=E;3:C6b<cFF0cF^280F:FbCCFDF7c.4F88F0bF=9F3C6CD^93EE1FCD0F3De^H^a405b2C40030^775D8.415manEa7a11^0s1DehTF^7ub09d3336bFE=2ED3C^0F3=a2F87333337aF48951b0I0D99ar53aC8CF
+
+<p align="center">
+<img width="424" height="407" alt="image" src="https://github.com/user-attachments/assets/96d686c4-677f-4697-98dc-e4a6dbec1a2a" />
+<img width="1365" height="765" alt="image" src="https://github.com/user-attachments/assets/29eebc2a-629e-4715-b4c9-ef06bbfd5565" />
+
